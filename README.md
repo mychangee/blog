@@ -31,5 +31,4 @@
 
 ## 关于博主
 
-![](https://media.mychangee.com/img/20201025115140.png!nomark)   ![](https://media.mychangee.com/img/20201025115317.jpg!nomark)  
-----------------微博--------------------------------- 微信-----------------
+![](https://media.mychangee.com/img/20201025130145.png!nomark)   ![](https://media.mychangee.com/img/20201025130144.png!nomark) 
