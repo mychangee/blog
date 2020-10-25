@@ -31,8 +31,8 @@
 
 ## 关于博主
 
-其他平台：
-CSDN：https://blog.csdn.net/mychangee
-博客园：https://www.cnblogs.com/mychangee
+其他平台：  
+CSDN：https://blog.csdn.net/mychangee  
+博客园：https://www.cnblogs.com/mychangee  
 
 ![](https://media.mychangee.com/img/20201025130145.png!nomark)   ![](https://media.mychangee.com/img/20201025130144.png!nomark) 
